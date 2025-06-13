@@ -1,1 +1,1 @@
-# Desafio-L-gica-Super-Trunfo
+# Desafio-Logica-Super-Trunfo
